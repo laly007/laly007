@@ -10,4 +10,4 @@ Meu nome é Lívia
 
 tymkiw.santos@escola.pr.gov.br
 
-![](https://media.tenor.com/Pb531euXDzoAAAAM/dancing-strumming.gif)
+![](https://media.tenor.com/NNRe2Ie9SD0AAAAM/slash.gif)
